@@ -1,4 +1,4 @@
-# 
+# Ultimato bitmex trading bot predefinições for Mac OS | Premium bitmex trading bot predefinições for PC Windows. Featuring análise de momento and negociação de futuros — optimized for maximum performance.
 
 
 
